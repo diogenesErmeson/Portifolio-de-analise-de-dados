@@ -1,0 +1,1 @@
+Você não pode usar está imagem para nehuma finalidade ilegal ou não autorizada. Você concorda em obdecer todas as leis, regras e normas(por exemplo, federais, estaduais e municipais) aplicaveis ao seu uso, incluíndo, entre outras coisas, leis de direitos autorais.
