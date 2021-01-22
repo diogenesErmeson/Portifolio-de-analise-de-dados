@@ -1,2 +1,2 @@
 # Portifólio-de-análise-de-dados
-scripts, arquivos, infográficos, dashboards,analises, relatórios
+Scripts, Arquivos, infográficos, Dashboards,Análises, Relatórios
